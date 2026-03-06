@@ -1,2 +1,2 @@
-# -studioabha-waitlist![bg](https://github.com/user-attachments/assets/0e57abb3-1c5b-4701-9ea0-df830801ba48)
-[Uploading index.html…]()
+![bg](https://github.com/user-attachments/assets/35b11217-9031-416e-991e-97d05657e79f)
+[index.html](https://github.com/user-attachments/files/25791610/index.html)
